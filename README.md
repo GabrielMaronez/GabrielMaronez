@@ -7,7 +7,7 @@ Hobbys
 
 - Pesca
 - Tocar Violäo | Música
-- Gamer
+- Games
 
 
 
